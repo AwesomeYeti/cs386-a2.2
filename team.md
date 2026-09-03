@@ -1,2 +1,2 @@
 ## Lareine Han ##
-* description: **wonderful super woman** *
+* description: **awesome super woman** *
